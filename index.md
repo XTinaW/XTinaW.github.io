@@ -17,3 +17,5 @@ As Picard said:
 > To make yourself more than you are. 
 > Oh, yes — I know you. 
 > There was a time you looked at the stars and dreamed of what might be. 
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/f/f9/Enterprise-D_crew_quarters_with_captain_Jean-Luc_Picard.jpg/1280px-Enterprise-D_crew_quarters_with_captain_Jean-Luc_Picard.jpg"/>
